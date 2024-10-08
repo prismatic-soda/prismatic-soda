@@ -1,1 +1,1 @@
-- gotta make sure the kids get fortnite smh
+- gotta make sure i pay the bills in the future somehow 😍
